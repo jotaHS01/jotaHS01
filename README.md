@@ -10,5 +10,6 @@
 
 00001241902914sp@al.educacao.sp.gov.br
 
-![]([https://tenor.com/pt-BR/view/e-gif-10731664124636879314](https://tenor.com/pt-BR/view/luffy-luffy-gear-5-lucci-one-piece-luffy-vs-lucci-gif-2891024682727744086))
+![](https://media1.tenor.com/m/WDddkupcTYAAAAAd/luffy.gif)
+
 
